@@ -1,3 +1,3 @@
 # Find the Essays Here
 
-*[Kill Bill- Tarantino's Cinematic Love Letter](https://gist.github.com/heyygarvit/7e4be2dc1fccbafb4f5792f126514c4b)*
+*[Kill Bill- Tarantino's Cinematic Love Letter](https://gist.github.com/heyygarvit/3f4b92a0a7634ce9816963e48a1fe786)*
